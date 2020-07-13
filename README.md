@@ -1,5 +1,10 @@
 ### 先有造化后有天，我身自在造化前，生来只有十八岁，一个混沌是一年 👋
 
+联系我
+* Email: [sundongzhi11014111@gmail.com](mailTo:sundongzhi11014111@gmail.com)
+* GitHub: [https://github.com/IORI20091101](https://github.com/IORI20091101)
+* Twitter: [https://twitter.com/iori20091101](https://twitter.com/iori20091101)
+
 <!--
 **IORI20091101/IORI20091101** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
