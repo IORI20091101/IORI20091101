@@ -1,4 +1,4 @@
-### 先有造化后有天，我身自在造化前，生来只有十八岁，一个混沌是一年 👋
+### 生命的等同价值，没有高低贵贱之分
 
 联系我
 * Email: [sundongzhi11014111@gmail.com](mailTo:sundongzhi11014111@gmail.com)
